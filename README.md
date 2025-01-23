@@ -1,0 +1,1 @@
+# Haikyuu-Legends-Script-No-Key-Pastebin
